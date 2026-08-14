@@ -1,7 +1,7 @@
 <!doctype html>
 <html amp lang="id">
 <head>
-	<meta name="google-site-verification" content="ceqHCvH0Cs9ithtHeTBvuOYssx1XyPKEODjhxqkRDOs" />
+	<meta name="google-site-verification" content="w2ZXazjvDcQrR0mDRNb4vhp4frP9bYv9WF-_-SJmWFE" />
   <meta charset="utf-8">
   <title>MERDEKA123|beragam Pilihan Game Online Gacor Merdeka123 Populer Paling Juara</title>
   <meta name="viewport" content="width=device-width, initial-scale=1">
